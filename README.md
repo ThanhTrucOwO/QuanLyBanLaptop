@@ -1,1 +1,1 @@
-# Project C# môn Đồ án chuyên ngành - Dương Thanh Trực - 3120410569
+# Project môn Đồ án chuyên ngành - Dương Thanh Trực - 3120410569
